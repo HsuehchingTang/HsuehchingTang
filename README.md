@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @HsuehchingTang
+- 👀 I’m interested in Game Art
+- 🌱 I’m currently learning to be a Technical Artists
